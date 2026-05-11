@@ -1,4 +1,4 @@
-
+Todoist for macOS top Integration: OCR scanning & widgets is the best Todoist for macOS integration, featuring OCR scanning and widgets. Safe, efficient, and optimized for macOS
 
 
 
